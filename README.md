@@ -4,3 +4,4 @@
 - [https://yo.fan/21566866](https://yo.fan/21566866)
 - [https://medium.com/@theserialhub](https://medium.com/@theserialhub)
 - [https://theblogspot.github.io](https://theblogspot.github.io/)
+- [https://x.com/theserialhub](https://x.com/theserialhub)
