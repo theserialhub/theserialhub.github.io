@@ -1,2 +1,6 @@
 - [http://theserialhub.github.io/](http://theserialhub.github.io/)
-- 
+- [https://www.quora.com/profile/Tracy-Ng-2034](https://www.quora.com/profile/Tracy-Ng-2034)
+- [https://www.youtube.com/channel/UCIBAkaAdpwxio9g23p8TPiw](https://www.youtube.com/channel/UCIBAkaAdpwxio9g23p8TPiw)
+- [https://yo.fan/21566866](https://yo.fan/21566866)
+- [https://medium.com/@theserialhub](https://medium.com/@theserialhub)
+- [https://theblogspot.github.io](https://theblogspot.github.io/)
